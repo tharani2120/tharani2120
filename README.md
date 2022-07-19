@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @tharani2120
 - 👀 I’m interested in core company and jobs
+   and also in IT feild industry.
 - 🌱 I’m currently learning BE Mechanical Engineering
 - 💞️ I’m looking to collaborate on MNC and other companies
 - 📫 How to reach me through my mail id
